@@ -42,6 +42,8 @@ IRL Hobbies:
 - Collecting LPS and Tamagotchis
 - Going to CSD's and Conventions or even Concerts
 
+---
+
 **Please don't Interact if anything applies to you:**
 
 - Homophobic, Transphobic, Racist, etc.
