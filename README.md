@@ -31,6 +31,7 @@ Movies/Shows:
 
 - Any BL's (Given, Go for it Nakamura, Sasaki to Miyano)
 - The Umbrella Academy
+- Gachiakuta
 - TADC
 - Alien Stage
 - Maze Runner
