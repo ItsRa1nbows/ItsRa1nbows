@@ -1,4 +1,4 @@
-## **Hello there, I'm Ra1nbows!**
+**Hello there, I'm Ra1nbows!**
 
 Don't be shy to interact with me on PonyTown, i'm mostly online when i feel bored out of my mind so you're not interrupting anything and i'd love to have a chat c:
 
