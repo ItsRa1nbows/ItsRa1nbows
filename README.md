@@ -6,7 +6,7 @@ Don't be shy to interact with me on PonyTown, i'm mostly online when i feel bore
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=1000&color=2735BE&vCenter=true&width=435&lines=You+are+filled+with+Integrity" alt="Typing SVG" /></a>
 
-Here are some of my Interests / Fandoms that i am in:
+Here are some of my Interests / Fandoms that I am in:
 
 Games (the ones i play or like the most):
 
@@ -25,7 +25,7 @@ Games (the ones i play or like the most):
 
 Movies/Shows:
 
-- Any BL's
+- Any BL's (Given, Go for it Nakamura, Sasaki to Miyano)
 - The Umbrella Academy
 - TADC
 - Alien Stage
@@ -36,9 +36,9 @@ Movies/Shows:
 IRL Hobbies:
 
 - Reading BL Manga/Manhwa (One Room TA, Hirano to Kagiura, Release your Persona, ...)
-- enjoying walks
+- Enjoying walks
 - Inline Skating and Cruising
-- listening to all kinds of music (Rock, Jazz, Lofi, ...)
+- Listening to all kinds of music (Rock, Jazz, Lofi, ...)
 - Collecting LPS and Tamagotchis
 - Going to CSD's and Conventions or even Concerts
 
