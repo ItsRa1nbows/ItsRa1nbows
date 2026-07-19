@@ -42,4 +42,13 @@ IRL Hobbies:
 - Collecting LPS and Tamagotchis
 - Going to CSD's and Conventions or even Concerts
 
+**Please don't Interact if anything applies to you:**
+
+- Homophobic, Transphobic, Racist, etc.
+- Under the Age of 16
+- Over the Age of 30
+- Tryna push Religion onto me
+- Tryna start a convo with politics
+- Copying my Character Design (inspo okay)
+
 ![description](https://i.pinimg.com/736x/53/a5/1d/53a51dadfbd88ecdc52aff6c31872087.jpg)
