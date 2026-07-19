@@ -40,6 +40,7 @@ IRL Hobbies:
 - Inline Skating and Cruising
 - Listening to all kinds of music (Rock, Jazz, Lofi, ...)
 - Collecting LPS and Tamagotchis
+- Learning Japanese (Beginner Level)
 - Going to CSD's and Conventions or even Concerts
 
 ---
