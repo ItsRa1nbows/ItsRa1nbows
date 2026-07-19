@@ -4,6 +4,8 @@ Don't be shy to interact with me on PonyTown, i'm mostly online when i feel bore
 
 ---
 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=1000&color=2735BE&vCenter=true&width=435&lines=You+are+filled+with+Integrity" alt="Typing SVG" /></a>
+
 Here are some of my Interests / Fandoms that i am in:
 
 Games (the ones i play or like the most):
@@ -40,5 +42,4 @@ IRL Hobbies:
 - Collecting LPS and Tamagotchis
 - Going to CSD's and Conventions or even Concerts
 
-  
 ![description](https://i.pinimg.com/736x/53/a5/1d/53a51dadfbd88ecdc52aff6c31872087.jpg)
