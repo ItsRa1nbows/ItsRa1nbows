@@ -22,6 +22,10 @@ Games (the ones i play or like the most):
 - No, I'm not a Human
 - Little Nightmares
 - Terraria
+- Livly Island
+- Phasmophobia
+- The Forest
+- Final Fantasy
 
 Movies/Shows:
 
