@@ -10,24 +10,24 @@ Don't be shy to interact with me on PonyTown, i'm mostly online when i feel bore
 
 Games (the ones i play or like the most):
 
-Starstable, 
-Omori, 
-Roblox, 
-Cookie Run Kingdom, 
-RDR2, 
-Detroit, 
-Life is Strange, 
-Stardew Valley, 
-Minecraft, 
-No, I'm not a Human, 
-Little Nightmares, 
-Terraria, 
-Livly Island, 
-Phasmophobia, 
-The Forest, 
-Final Fantasy, 
-Monster Hunter Wilds, 
-Forza Horizon 3 & 6, ...
+- Starstable
+- Omori
+- Roblox
+- Cookie Run Kingdom
+- RDR2
+- Detroit
+- Life is Strange
+- Stardew Valley
+- Minecraf
+- No, I'm not a Human
+- Little Nightmares
+- Terraria
+- Livly Island
+- Phasmophobia
+- The Forest
+- Final Fantasy
+- Monster Hunter Wilds
+- Forza Horizon 3 & 6
 
 
 Movies/Shows:
