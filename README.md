@@ -21,6 +21,7 @@ Games (the ones i play or like the most):
 - Minecraf
 - No, I'm not a Human
 - Little Nightmares
+- Mouthwashing
 - Terraria
 - Livly Island
 - Phasmophobia
@@ -56,7 +57,7 @@ IRL Hobbies:
 **Please don't Interact if anything applies to you:**
 
 - Homophobic, Transphobic, Racist, etc.
-- Under the Age of 16
+- Under the Age of 15
 - Over the Age of 30
 - Tryna push Religion onto me
 - Tryna start a convo with politics
