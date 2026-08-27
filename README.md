@@ -41,6 +41,7 @@ Movies/Shows:
 - Maze Runner
 - Spiderman
 - Metal Family
+- Link Click
 
 IRL Hobbies:
 
