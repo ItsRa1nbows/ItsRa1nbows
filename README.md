@@ -10,25 +10,7 @@ Don't be shy to interact with me on PonyTown, i'm mostly online when i feel bore
 
 Games (the ones i play or like the most):
 
-- Starstable
-- Omori
-- Roblox
-- Cookie Run Kingdom
-- RDR2
-- Detroit
-- Life is Strange
-- Stardew Valley
-- Minecraf
-- No, I'm not a Human
-- Little Nightmares
-- Mouthwashing
-- Terraria
-- Livly Island
-- Phasmophobia
-- The Forest
-- Final Fantasy
-- Monster Hunter Wilds
-- Forza Horizon 3 & 6
+Starstable, Omori, Roblox, Cookie Run Kingdom, RDR2, Detroit, Life is Strange, Stardew Valley, Minecraft, No, I'm not a Human, Little Nightmares, Terraria, Livly Island, Phasmophobia, Final Fantasy, ...
 
 
 Movies/Shows:
@@ -45,21 +27,19 @@ Movies/Shows:
 
 IRL Hobbies:
 
-- Reading BL Manga/Manhwa (One Room TA, Hirano to Kagiura, Release your Persona, 19 Days, ...)
-- Enjoying walks
+- Reading BL/Yaoi Manhwa
+- Enjoying walks or driving my bike
 - Inline Skating and Cruiser Boarding
-- Listening to all kinds of music (Rock, Jazz, Lofi, ...)
+- Listening to all kinds of Music
 - Collecting LPS and Tamagotchis
-- Learning Japanese (Beginner Level)
-- Going to CSD's and Conventions or even Concerts
+- Learning Japanese (currently still beginner Level)
+- Going to CSD's and Conventions and Concerts
 
 ---
 
 **Please don't Interact if anything applies to you:**
 
 - Homophobic, Transphobic, Racist, etc.
-- Under the Age of 15
-- Over the Age of 30
 - Tryna push Religion onto me
 - Tryna start a convo with politics
 - Copying my Character Design (inspo okay)
