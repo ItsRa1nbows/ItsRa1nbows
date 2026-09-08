@@ -67,3 +67,4 @@ IRL Hobbies:
 
 <img src="https://64.media.tumblr.com/3324079f4678a62c9ad106b33a1665fc/8851ce1a46c1b01a-5f/s1280x1920/dcce4c15d3d600602cce1a9bc5d9637ff9e2d447.jpg" width="1500" height="400"/>
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Sans&duration=4000&pause=50&color=676767&center=false&multiline=true&width=435&lines=The+stars+shine+brightly+overhead...;You+don't+have+a+care+in+the+world.)](https://git.io/typing-svg)
