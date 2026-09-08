@@ -26,7 +26,7 @@ Games (the ones i currently play or like the most):
 - Phasmophobia
 - Final Fantasy, ...
 
-![description](![description](https://64.media.tumblr.com/3aefef441ea17c9b89b11759a2d45839/fc0b671c9fc45565-c2/s2048x3072/17578ede0ce7ea4026443818ba671d5a1f768fab.gifv))
+![description](https://64.media.tumblr.com/3aefef441ea17c9b89b11759a2d45839/fc0b671c9fc45565-c2/s540x810/70371fe5e46a833496b4dbd98b564cd19c17214d.gifv)
 
 Movies/Shows:
 
@@ -40,7 +40,7 @@ Movies/Shows:
 - Metal Family
 - Link Click
 - 
-![description](![description](https://64.media.tumblr.com/3aefef441ea17c9b89b11759a2d45839/fc0b671c9fc45565-c2/s2048x3072/17578ede0ce7ea4026443818ba671d5a1f768fab.gifv))
+![description](https://64.media.tumblr.com/3aefef441ea17c9b89b11759a2d45839/fc0b671c9fc45565-c2/s540x810/70371fe5e46a833496b4dbd98b564cd19c17214d.gifv)
 
 IRL Hobbies:
 
@@ -52,7 +52,7 @@ IRL Hobbies:
 - Learning Japanese (currently still beginner Level)
 - Going to CSD's and Conventions and Concerts
 
-![description](![description](https://64.media.tumblr.com/3aefef441ea17c9b89b11759a2d45839/fc0b671c9fc45565-c2/s2048x3072/17578ede0ce7ea4026443818ba671d5a1f768fab.gifv))
+![description](https://64.media.tumblr.com/3aefef441ea17c9b89b11759a2d45839/fc0b671c9fc45565-c2/s540x810/70371fe5e46a833496b4dbd98b564cd19c17214d.gifv)
 
 **Please don't Interact if anything applies to you:**
 
