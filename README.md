@@ -8,10 +8,25 @@ Don't be shy to interact with me on PonyTown, i'm mostly online when i feel bore
 
 **Here are some of my Interests / Fandoms that I am in:**
 
-Games (the ones i play or like the most):
+Games (the ones i currently play or like the most):
 
-Starstable, Omori, Roblox, Cookie Run Kingdom, RDR2, Detroit, Life is Strange, Stardew Valley, Minecraft, No, I'm not a Human, Little Nightmares, Terraria, Livly Island, Phasmophobia, Final Fantasy, ...
+- Starstable
+- Omori
+- Roblox
+- Cookie Run Kingdom
+- RDR2
+- Detroit
+- Life is Strange
+- Stardew Valley
+- Minecraft
+- No, I'm not a Human
+- Little Nightmares
+- Terraria
+- Livly Island
+- Phasmophobia
+- Final Fantasy, ...
 
+![description](https://64.media.tumblr.com/f48685c07034fc4ee97590fe01f7ce5e/70f68352ef186324-01/s400x600/ab3cf466e12449bc96b6e49586739eb15e673fe4.pnj)
 
 Movies/Shows:
 
@@ -24,6 +39,8 @@ Movies/Shows:
 - Spiderman
 - Metal Family
 - Link Click
+- 
+![description](https://64.media.tumblr.com/f48685c07034fc4ee97590fe01f7ce5e/70f68352ef186324-01/s400x600/ab3cf466e12449bc96b6e49586739eb15e673fe4.pnj)
 
 IRL Hobbies:
 
@@ -35,7 +52,7 @@ IRL Hobbies:
 - Learning Japanese (currently still beginner Level)
 - Going to CSD's and Conventions and Concerts
 
----
+![description](https://64.media.tumblr.com/f48685c07034fc4ee97590fe01f7ce5e/70f68352ef186324-01/s400x600/ab3cf466e12449bc96b6e49586739eb15e673fe4.pnj)
 
 **Please don't Interact if anything applies to you:**
 
