@@ -6,8 +6,6 @@ Don't be shy to interact with me on PonyTown, i'm mostly online when i feel bore
 
 <img src="https://64.media.tumblr.com/3aefef441ea17c9b89b11759a2d45839/fc0b671c9fc45565-c2/s540x810/70371fe5e46a833496b4dbd98b564cd19c17214d.gifv" width="1500" height="15"/>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=1000&color=2735BE&vCenter=true&width=435&lines=You+are+filled+with+Integrity" alt="Typing SVG" /></a>
-
 **Here are some of my Interests / Fandoms that I am in:**
 
 Games (the ones i currently play or like the most):
