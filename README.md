@@ -1,9 +1,10 @@
+<img src="https://64.media.tumblr.com/3324079f4678a62c9ad106b33a1665fc/8851ce1a46c1b01a-5f/s1280x1920/dcce4c15d3d600602cce1a9bc5d9637ff9e2d447.jpg" width="1500" height="400"/>
+
 **Hello there, I'm Ra1nbows!** 
 
 Don't be shy to interact with me on PonyTown, i'm mostly online when i feel bored out of my mind so you're not interrupting anything and i'd love to have a chat c:
 
-
----
+<img src="https://64.media.tumblr.com/3aefef441ea17c9b89b11759a2d45839/fc0b671c9fc45565-c2/s540x810/70371fe5e46a833496b4dbd98b564cd19c17214d.gifv" width="1500" height="15"/>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=1000&color=2735BE&vCenter=true&width=435&lines=You+are+filled+with+Integrity" alt="Typing SVG" /></a>
 
@@ -61,9 +62,10 @@ IRL Hobbies:
 **Please don't Interact if anything applies to you:**
 
 - Homophobic, Transphobic, Racist, etc.
-- Tryna push Religion onto me
-- Tryna start a convo with politics
+- Trying to push Religion onto me
+- Trying to start a conversation with politics
 - Copying my Character Design (inspo okay)
+- If you are under the age of 12
 
-<img src="https://64.media.tumblr.com/3324079f4678a62c9ad106b33a1665fc/8851ce1a46c1b01a-5f/s1280x1920/dcce4c15d3d600602cce1a9bc5d9637ff9e2d447.jpg" width="1500" height="350"/>
+<img src="https://64.media.tumblr.com/3324079f4678a62c9ad106b33a1665fc/8851ce1a46c1b01a-5f/s1280x1920/dcce4c15d3d600602cce1a9bc5d9637ff9e2d447.jpg" width="1500" height="400"/>
 
