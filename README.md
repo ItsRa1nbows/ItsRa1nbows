@@ -26,7 +26,7 @@ Games (the ones i currently play or like the most):
 - Terraria
 - Livly Island
 - Phasmophobia
-- Final Fantasy, ...
+- Final Fantasy
 
 <img src="https://64.media.tumblr.com/3aefef441ea17c9b89b11759a2d45839/fc0b671c9fc45565-c2/s540x810/70371fe5e46a833496b4dbd98b564cd19c17214d.gifv" width="1500" height="15"/>
 
@@ -47,13 +47,13 @@ Movies/Shows:
 
 IRL Hobbies:
 
-- Reading BL/Yaoi Manhwa
-- Enjoying walks or driving my bike
+- Reading Manhwas
+- Taking Mental Health Walks or driving my bike around town
 - Inline Skating and Cruiser Boarding
 - Listening to all kinds of Music
 - Collecting LPS and Tamagotchis
-- Learning Japanese (currently still beginner Level)
-- Going to CSD's and Conventions and Concerts
+- Learning Japanese
+- Going to CSD's, Conventions and Concerts
 
 
 <img src="https://64.media.tumblr.com/3aefef441ea17c9b89b11759a2d45839/fc0b671c9fc45565-c2/s540x810/70371fe5e46a833496b4dbd98b564cd19c17214d.gifv" width="1500" height="15"/>
