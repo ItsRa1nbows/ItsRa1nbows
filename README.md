@@ -27,6 +27,8 @@ Games:
 - Livly Island
 - Phasmophobia
 - Final Fantasy
+- Monster Hunter Wilds
+- Aion 2
 
 I especially love multiplayer/co-op and psychological horror games
 
